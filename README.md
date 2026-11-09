@@ -11,7 +11,7 @@
 ![](https://64.media.tumblr.com/7a639c4bdddb4e50275760006a3f6815/db30b98046748aeb-c3/s400x600/eb60c4a6bc73df579ab8bb5b8265d7ca04c319e4.pnj)
 
 
-#### feel free to sign my [ata](https://mirroredstag.atabook.org) , strawpage under construction ! ![](https://64.media.tumblr.com/39b4ae53908565080fdbe639b5fdf8b6/fde243a86972781d-fe/s100x200/df6a482feeaa4c546dadd6d2990ab5cc105e5345.gifv)
+#### feel free to sign my [ata](https://mirroredstag.atabook.org) or [strawpage](https://mirroredstag.straw.page) ! ![](https://64.media.tumblr.com/39b4ae53908565080fdbe639b5fdf8b6/fde243a86972781d-fe/s100x200/df6a482feeaa4c546dadd6d2990ab5cc105e5345.gifv)
 
 ㅤ
 
